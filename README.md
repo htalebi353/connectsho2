@@ -1,9 +1,9 @@
 # خرید وی پی ان اختصاصی با سرعت بالا و گارانتی تعویض تا آخرین روز اشتراک
 برای خرید به آی دی زیر در تلگرام پیام دهید:<br>
-https://t.me/cnsho<br>
-https://t.me/cnsho<br>
-https://t.me/cnsho<br>
-https://t.me/cnsho
+👈 https://t.me/cnsho<br>
+👈 https://t.me/cnsho<br>
+👈 https://t.me/cnsho<br>
+👈 https://t.me/cnsho
 
 # ویژگی های اکانت های ما:
 - سرعت بالا
@@ -17,7 +17,7 @@ https://t.me/cnsho
 
 
 برای خرید به آی دی زیر در تلگرام پیام دهید:<br>
-https://t.me/cnsho<br>
-https://t.me/cnsho<br>
-https://t.me/cnsho<br>
-https://t.me/cnsho
+👈 https://t.me/cnsho<br>
+👈 https://t.me/cnsho<br>
+👈 https://t.me/cnsho<br>
+👈 https://t.me/cnsho
